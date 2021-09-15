@@ -1,3 +1,6 @@
+Hi there 👋
+
+
 I'm a UX/UI Designer working in Perth, Australia.
 
 NOW
